@@ -1,0 +1,1 @@
+Banana bread and gingerbread come together in this delicious recipe. It's a great way to use up those extra bananas during the holidays or wintertime. A thick vanilla glaze is the perfect finishing touch!
